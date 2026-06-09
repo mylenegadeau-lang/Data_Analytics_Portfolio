@@ -30,4 +30,5 @@
 I am always open to discussing data projects, collaboration opportunities, or data analytics trends.🚀
 
 *💼 **Linkedin:** [www.linkedin.com/in/nicole-gadeau-b8a77a371]
+
 *📧 **Email:** [mylenegadeau@gmail.com]
